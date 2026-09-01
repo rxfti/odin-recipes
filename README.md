@@ -1,0 +1,2 @@
+Dessert Basics
+A small collection of three fundamental desserts: no-bake tiramisu, classic chocolate mousse, and baked lemon bars. Each recipe uses simple, widely available ingredients and standard techniques, making them solid starting points whether you're building baking confidence or just want a reliable dessert on hand.
